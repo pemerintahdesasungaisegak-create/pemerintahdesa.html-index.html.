@@ -1,2 +1,2 @@
-# pemerintahdesa.html-index.html.
+# pemerintahdesa.com
 Pemerintah Desa Sungai Segak Kecamatan Sebangki Kabupaten Landak 
